@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on creative web apps and open-source design tools
 
-📫 How to reach me: swapnilpnote@gmail.com
+📫 How to reach me: rammahatkar8962@gmail.com
 
 😄 Pronouns: He/Him
 
